@@ -2,7 +2,7 @@
 
 ##### 😄 &nbsp; I like ℂ𝕆𝕆𝕃 𝖣𝖤𝖲𝖨𝖦𝖭 &nbsp;💙
 ##### 🐱 &nbsp; currently learning 𝗙𝗿𝗼𝗻𝘁⧿𝗘𝗻𝗱 &nbsp;🎧
-##### 🔗 &nbsp; https://blog.naver.com/nokkom
+##### 🔗 &nbsp; https://komno.tistory.com/
 
 <!--
 **jiaero/jiaero** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
